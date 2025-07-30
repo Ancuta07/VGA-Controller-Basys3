@@ -37,3 +37,7 @@ The transition between day and night is done automatically or via a control sign
 
 
 
+
+https://github.com/user-attachments/assets/cd5c72f7-e625-4678-a7c7-692450dd0976
+
+
